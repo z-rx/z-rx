@@ -4,7 +4,7 @@
 
 If you want to chat with me, please contact my QQ: 3256749473
 
-If you need to contact me on important matters, please send me an email: ohnmachess@163.com
+If you need to contact me on important matters, please send me an email: ohnmaches@163.com
 
 I will share my daily life on Zhihu. You can also contact me through Zhihu private messages. You are also welcome to follow me:: [Click there](https://www.zhihu.com/people/qingdkj)
 
