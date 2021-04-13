@@ -2,7 +2,7 @@
 
 ### 👀Contact me!
 
-If you want to chat with me, please contact my QQ: 3256749473
+If you want to chat with me, please contact my QQ: 2166944549
 
 If you need to contact me on important matters, please send me an email: ohnmaches@163.com
 
